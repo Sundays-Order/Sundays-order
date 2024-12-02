@@ -1,16 +1,13 @@
-## Hi there 👋
+## Info for ponytown
 
-<!--
-**Sundays-Order/Sundays-order** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-I'm sunday, always free to interact with. If you're not sure if im off tab or not, you can always whisper me!
 
-Here are some ideas to get you started:
+-I do not interact with people under the age of 16, p*dos, trans/homophobes, or anyone whos generally just being a creep.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-Massive sunday simp, so much so that i actually became him.
+
+-Dont mind my ponytown status, half the time i dont even remember it exists.
+
+-Interests include Horses, art, gacha games (not the ones by luni), writing, and music.
+
+### Talk to me about any of my interests please!! I don't bite!
