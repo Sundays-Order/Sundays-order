@@ -11,5 +11,3 @@
 -Interests include Horses, art, gacha games (not the ones by luni), writing, and music.
 
 ### Talk to me about any of my interests please!! I don't bite!
-
-### Sign my tree please :3 
