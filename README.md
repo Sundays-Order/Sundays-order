@@ -12,4 +12,4 @@
 
 ### Talk to me about any of my interests please!! I don't bite!
 
-### Sign tree, if ur a stranger u can just say ponytown!! i dont mind :3 
+### Sign my atabook please! just a simple "hi" works well!
