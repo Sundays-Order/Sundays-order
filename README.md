@@ -1,5 +1,7 @@
 ## Info for ponytown
 
+- nt carrd is like really outdated im gonna remake it one day i think..
+
 -I'm sunday, always free to interact with. If you're not sure if im off tab or not, you can always whisper me!
 
 -I do not interact with people under the age of 15, p*dos, trans/homophobes, or anyone whos generally just being a creep.
