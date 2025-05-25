@@ -1,6 +1,6 @@
 ## Info for ponytown
 
-- nt carrd is like really outdated im gonna remake it one day i think..
+-my carrd is like really outdated im gonna remake it one day i think..
 
 -I'm sunday, always free to interact with. If you're not sure if im off tab or not, you can always whisper me!
 
