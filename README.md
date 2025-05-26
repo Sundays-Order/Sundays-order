@@ -1,6 +1,6 @@
 ## Info for ponytown
 
--my carrd is like really outdated im gonna remake it one day i think..
+-My carrd is like really outdated im gonna remake it one day i think..
 
 -I'm sunday, always free to interact with. If you're not sure if im off tab or not, you can always whisper me!
 
@@ -11,6 +11,8 @@
 -Dont mind my ponytown status, half the time i dont even remember it exists.
 
 -Interests include Horses, art, gacha games (not the ones by luni), writing, and music.
+
+-I draw on ppls strawpages! All my art is signed with S_O so if you see it, its very likely mine! :D
 
 ### Talk to me about any of my interests please!! I don't bite!
 
